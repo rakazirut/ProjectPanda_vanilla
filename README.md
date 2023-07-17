@@ -1,1 +1,0 @@
-# ProjectPanda_vanilla
